@@ -1,1 +1,1 @@
-[CV](https://differandy.github.io/rsschool-cv/cv)
+[Click](https://differandy.github.io/rsschool-cv/)
